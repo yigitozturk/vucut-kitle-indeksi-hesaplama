@@ -1,0 +1,1 @@
+# vucut-kitle-indeksi-hesaplama
