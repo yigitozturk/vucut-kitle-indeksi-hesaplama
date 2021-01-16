@@ -1,1 +1,2 @@
-# vucut-kitle-indeksi-hesaplama
+# https://www.instagram.com/yiitoztrk/
+# https://twitter.com/JanDeQuay
